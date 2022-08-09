@@ -1,5 +1,5 @@
 # sobre mim
-ola meu nome é kaua carducci pasquali
+Ola meu nome é kaua carducci pasquali
 Meu email de contato é kaua.pasquali@escola.pr.gov.br
 - 👋 Hi, I’m @Carduccikaua
 - 👀 I’m interested in ...
